@@ -1,1 +1,0 @@
-# furkantekcan.github.io
